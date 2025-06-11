@@ -4,5 +4,5 @@
 - 💞️ I’m looking to collaborate on an Game Development project
 - 📫 How to reach me:
 
-Discord : FerresM#2646
+Discord : einfachferres
 Email : f.mauris@outlook.de
